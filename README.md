@@ -12,5 +12,9 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: ... zzzjji610@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... i love this🐴 emoji 
+- ⚡ Fun fact: ... i love this💚 emoji 
 -->
+
+- 🌱 I’m currently learning ... statistic
+- 📫 How to reach me: ... zzzjji610@gmail.com
+- ⚡ Fun fact: ... i love this💚 emoji
