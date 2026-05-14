@@ -15,6 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ... i love this💚 emoji 
 -->
 
+### My name is Jiin Jung
+
 - 🌱 I’m currently learning ... statistic
 - 📫 How to reach me: ... zzzjji610@gmail.com
 - ⚡ Fun fact: ... i love this💚 emoji
